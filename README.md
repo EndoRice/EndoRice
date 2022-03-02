@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Endris 
+- I want to play rap music throug my wii u 
+- If you see me just know i am one day closer to making that dream a reality 
